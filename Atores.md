@@ -1,3 +1,4 @@
 sylvester stallone
-Will Smith
+Cyndi Lauper
 The Rock
+Bob Dylan
